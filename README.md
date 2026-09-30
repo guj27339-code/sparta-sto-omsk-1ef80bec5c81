@@ -1,1 +1,0 @@
-# sparta-sto-omsk-1ef80bec5c81
